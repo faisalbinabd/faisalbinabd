@@ -1,5 +1,5 @@
 - Hi, I’m @faisalbinabd
-- I’m interested in Marketers will to purchase industrial kitchen equipment and stainless steel designs
+- I’m interested in Marketers willing to purchase industrial kitchen equipment and stainless steel designs
 - I’m looking to collaborate on . App development 
 - How to reach me ... Email: faisalbinabd@gmail.com/ faisalbinabd@outlook.com.  TEl: +23408177045516
 
